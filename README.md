@@ -1,2 +1,3 @@
-# photo-to-print
-really need help. Hatebasking butbi need to figure this out
+# photo-to-print Please help me...
+really need help. Hate asking but i need to figure this out
+I get so close in meshroom but always struggle to find perfect settings. Have to admit I don't know what half of them mran
